@@ -1,0 +1,5 @@
+- 👋 Hi, Dr-Nieto or just call me rob
+- 👀 I am a game developer that is mostly used RPG maker. however I'm pretty known for my great skills in music. You might even heard of a game call don't open the door which I developed.
+- 🌱 I’m learning to self promote and to improve my game more. I have a lot more to learn in game development.
+- 💞️ I’m looking to share my game and interesting stories throughout the world. I'm also hoping to look for people that can help me on my journey of bringing one of my creations into more mainstream media like appearance.
+- 📫 How to reach me? I'm not online much but here is my games website: https://dr-standback.itch.io/dont-open-the-door  I believe this place also should have a way to reach me as well but I will haer from you if can.
